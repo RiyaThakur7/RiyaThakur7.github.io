@@ -34,7 +34,7 @@ It was an honour to listen to these great personalities. The whole Induction Pro
 |Mathematics|Mr. Sanchit Mehra|Derivatives|
 |Peer Internship|Seniors|Excel, AI and Machine Learning|
 
-July 11, 2024, The second day of Induction Program. There were 2 lectures for _Electronics and Communications Students_. First Lecture was **Mathematics** and was conducted by  **Mr.Sanchit Mehra** . Sir revised the topic of _**Derivatives**_. He explained the topic very well and told usto solve the questions. It was a very interactive class.
+July 11, 2024, The second day of Induction Program. There were 2 lectures for _Electronics and Communications Students_. First Lecture was **Mathematics** and was conducted by  **Mr.Sanchit Mehra** . Sir revised the topic of _**Derivatives**_. He explained the topic very well and we solved many questions. It was a very interactive class.
 
 Second lecture was **Peer Internship**. It was conducted by our seniors. Firstly, They taught us _**How to use Excel?**_. They explained it very well. Second topic was _**Artificial Intelligence and Machine Learning**_. They explained us _**What is AI?**_. They told us about **Chat Gpt**. There are many AI softwares such as Chat Gpt, Gemini, Meta etc. We got to know about _**Machine Learning**_. Machine Learning is a subset of Artificial Intelligence that automatically enables a machine or system to learn and improve from experience. That was a wonderful class. We got so much information about AI and Machine Learning.
 
