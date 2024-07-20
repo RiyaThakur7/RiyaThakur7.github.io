@@ -45,6 +45,12 @@ Lectures Taken By Topic
 
 
  
-July 12, 2024, The Third day of Induction Program. It was conducted in Auditorium. First lecture was conducted by _**Dr. Amit Kamra**_. Sir is also the incharge of Social Media Club. Sir told us about that social media not only can be used for fun but also can be used to enhance the employability
+July 12, 2024, The Third day of Induction Program. It was conducted in Auditorium. First lecture was conducted by _**Dr. Amit Kamra**_. Sir is also the incharge of Social Media Club. Sir told us about that social media not only can be used for fun but also can be used to enhance the employability. Sir told us that _**How we can enhance our career through Social Media?**_. Sir introduced us to the college's social media pages. Sir told us that everything have its pros and cons. Social Media also have its pros and cons but we should focus on its pros and can enhance our skills suxh as editing etc. The lecture was wonderful and interesting.
+
+Second Lecture was conducted by _**Dr. S.B. Singh**_. Sir told us to write our goals, our strong points, our weak points , Where do we see ourself in future? and many more. Sir inspired us and motivated us to dream about goals and woth hardwork we can achieve it.
+
+Third lecture was conducted by _**Dr. Pushpinder Singh**_.
+
+
 
 
