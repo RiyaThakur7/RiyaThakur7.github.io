@@ -57,3 +57,6 @@ Third lecture was conducted by _**Dr. Pushpinder Singh**_.
 | :----- | :-----| :---|
 |Peer Internship|Seniors|Canva|
 |Mathematics|Mr. Sanchit Mehra| Integrals|
+
+July 15,2024, The fourth day of Induction Program. The lecture was conducted by Seniors. They taught us _**How to use Canva?**_ They explained every step. We got to know _**How to make our own templates?**_ During this lecture we made our own templates, generated the QR code of college and made an advertisement.
+![Guru Nanak Dev Engineering College, Ldh_20240715_110341_0000](https://github.com/user-attachments/assets/07e28f87-3224-4507-b119-57c401d33f81)
