@@ -77,3 +77,24 @@ Second Lecture was conducted by _**Mr. Sanchit Mehra**_. Sir revised the topic o
 
 July 16, 2024. The fifth day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. Mam teached us the _**Universal Human Values**_. Mam explained the topic _**Value Education**_. Value Education means What is valuable for you? if it is valuable for you,it makes us happy or not. Value Education and Skill Education go hand in hand. 
 Second Lecture was conducted by _**Mr. Sanchi Mehra**_. Sir continued the topic of _**Integration**_. We solved many questions and practiced it very well.
+
+## Day 6
+
+July 17, 2024. The sixth day of Induction Program. 
+
+
+## Day 7
+
+|Lecture|Conducted by|Topics|
+| : ----| :----------| :----|
+|Auditorium Session|Pf. Harpal Singh Pannu|
+|Auditorium Session|Dr. H.S. Rai| Examinations|
+|Department Visit/Mentor Visit|-|-|
+
+July 18, 2024. The seventh day of Induction Program. 
+
+## Day 8
+
+|Lecture|Conducted by|Topic|
+| :-----| :----------| :---|
+
