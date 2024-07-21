@@ -97,4 +97,6 @@ July 18, 2024. The seventh day of Induction Program.
 
 |Lecture|Conducted by|Topic|
 | :-----| :----------| :---|
+|UHV|Prof. Jasmine Kaur| Human Body is the coexistence of Self and Body|
+|
 
