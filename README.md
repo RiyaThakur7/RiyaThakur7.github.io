@@ -55,7 +55,7 @@ Third lecture was conducted by _**Dr. Pushpinder Singh**_.
 
 ## Day 4
 |Lecture|Taken by|Topic|
-| :----- | :-----| :---|
+| :-----| :-----| :---|
 |Peer Internship|Seniors|Canva|
 |Mathematics|Mr. Sanchit Mehra| Integrals|
 
