@@ -64,4 +64,14 @@ July 15,2024, The fourth day of Induction Program. The lecture was conducted by 
 
 https://github.com/user-attachments/assets/ffbdbe60-415f-4dbf-8d97-f5e48e3b4fb9
 
-Second Lecture was conducted by _**Mr. Sanchit Mehra**_. Sir revised the topic of _**Integration**_. We solved many questions upto the topic of Partial Fraction. Rest of the topic will be explained in the next class. Sir explained it very well. It was a wonderful class
+Second Lecture was conducted by _**Mr. Sanchit Mehra**_. Sir revised the topic of _**Integration**_. We solved many questions upto the topic of Partial Fraction. Rest of the topic will be explained in the next class. Sir explained it very well. It was a wonderful class.
+
+## Day 5
+
+|Lecture|Conducted by|Topics|
+|:------|:-----------| :----|
+|UHV|Prof.Jasmine Kaur|Universal Human Values|
+|Mathematics|Mr. Sanchit Mehra| Integrals|
+
+July 16, 2024. The fifth day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. Mam teached us the _**Universal Human Values**_. Mam explained the topic _**Value Education**_. Value Education means What is valuable for you? if it is valuable for you,it makes us happy or not. Value Education and Skill Education go hand in hand. 
+Second Lecture was conducted by _**Mr. Sanchi Mehra**_. Sir continued the topic of _**Integration**_. We solved many questions and practiced it very well.
