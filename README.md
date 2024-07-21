@@ -64,3 +64,4 @@ July 15,2024, The fourth day of Induction Program. The lecture was conducted by 
 
 https://github.com/user-attachments/assets/ffbdbe60-415f-4dbf-8d97-f5e48e3b4fb9
 
+Second Lecture was conducted by _**Mr. Sanchit Mehra**_. Sir revised the topic of _**Integration**_. We solved many questions upto the topic of Partial Fraction. Rest of the topic will be explained in the next class. Sir explained it very well. It was a wonderful class
