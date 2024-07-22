@@ -31,7 +31,7 @@ It was an honour to listen to these great personalities. The whole Induction Pro
 > New Day New Start
 
 |Lectures|Conducted By|Topic|
-| :------| :------| :---|
+| :------| :----------| :---|
 |Mathematics|Mr. Sanchit Mehra|Derivatives|
 |Peer Internship|Seniors|Excel, AI and Machine Learning|
 
@@ -56,8 +56,8 @@ Third lecture was conducted by _**Dr. Pushpinder Singh**_. Sir shared some views
 
 
 ## Day 4
-|Lecture|Taken by|Topic|
-| :-----| :-----| :---|
+|Lecture|Conducted By|Topic|
+| :-----| :----------| :---|
 |Peer Internship|Seniors|Canva|
 |Mathematics|Mr. Sanchit Mehra| Integrals|
 
@@ -72,7 +72,7 @@ Second Lecture was conducted by _**Mr. Sanchit Mehra**_. Sir revised the topic o
 
 ## Day 5
 
-|Lecture|Conducted by|Topics|
+|Lecture|Conducted By|Topic|
 |:------|:-----------| :----|
 |UHV|Prof.Jasmine Kaur|Universal Human Values|
 |Mathematics|Mr. Sanchit Mehra| Integrals|
@@ -95,8 +95,8 @@ July 17, 2024, The sixth day of Induction Program.
 
 ## Day 7
 
-|Lecture|Conducted by|Topics|
-| : ----| :----------| :----|
+|Lecture|Conducted By|Topic|
+| : ----| :----------| :---|
 |Auditorium Session|Pf. Harpal Singh Pannu|
 |Auditorium Session|Dr. H.S. Rai|Examinations|
 |Department Visit/Mentor Visit|-|-|
@@ -107,7 +107,7 @@ Third thing was _**Department Visit**_. We visted our department labs such as Co
 
 ## Day 8
 
-|Lecture|Conducted by|Topic|
+|Lecture|Conducted By|Topic|
 | :-----| :----------| :---|
 |UHV|Prof. Jasmine Kaur|Human Body is the coexistance of Self and Body|
 |Peer Internship|Seniors|College Website Details|
