@@ -90,7 +90,7 @@ Second Lecture was conducted by _**Mr. Sanchi Mehra**_. Sir continued the topic 
 |Auditorium Session|Librarian|Central Library|
 |Auditorium Session|Er. Lakhveer Singh|CML|
 
-July 17, 2024, The sixth day of Induction Program.  
+July 17, 2024, The sixth day of Induction Program. First session was conducted by _**Mr. Jaswinder Singh**_, Incharge of IAPT. Sir told us that everywhere is science. That science should be understanded with meaning. If we understand the science, it will become easy for us to learn. We will able to understand the concept easily and wil not ever forget it. Sir showed many experiments such as rubbing the ballon on the hand.
 
 
 ## Day 7
