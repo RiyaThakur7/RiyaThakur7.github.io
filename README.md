@@ -83,20 +83,22 @@ Second Lecture was conducted by _**Mr. Sanchi Mehra**_. Sir continued the topic 
 ## Day 6
 
 |Lecture|Conducted By|Topic|
-| :-----| :----------| :---|
+|:------|:-----------|:----|
 |Auditorium Session|Mr. Jaswinder Singh|Basic Principle of Science|
 |Auditorium Session|NCC Team|NCC|
 |Auditorium Session|Er. Jasvir Singh Grewal|NSS|
 |Auditorium Session|Librarian|Central Library|
 |Auditorium Session|Er. Lakhveer Singh|CML|
 
-July 17, 2024, The sixth day of Induction Program. First session was conducted by _**Mr. Jaswinder Singh**_, Incharge of IAPT. Sir told us that everywhere is science. That science should be understanded with meaning. If we understand the science, it will become easy for us to learn. We will able to understand the concept easily and wil not ever forget it. Sir showed many experiments such as rubbing the ballon on the hand.
+July 17, 2024, The sixth day of Induction Program. First session was conducted by _**Mr. Jaswinder Singh**_, Incharge of IAPT. Sir told us that everywhere is science. That science should be understanded with meaning. If we understand the science, it will become easy for us to learn. We will able to understand the concept easily and wil not ever forget it. Sir showed many experiments such as rubbing the ballon on the hand, dipping glass in the bowl filled with water etc. It was a very interactive class. I learned many new things. 
+Second Lecture was conducetd by _**NCC Team**_. NCC Team shared the role of NCC and what does NCC have. NCC also have an Air Wing now.
+Third Lecture was conducted by  
 
 
 ## Day 7
 
 |Lecture|Conducted By|Topic|
-| : ----| :----------| :---|
+| :-----| :----------| :---|
 |Auditorium Session|Pf. Harpal Singh Pannu|
 |Auditorium Session|Dr. H.S. Rai|Examinations|
 |Department Visit|
@@ -112,5 +114,5 @@ Third thing was _**Department Visit**_. We visted our department labs such as Co
 |UHV|Prof. Jasmine Kaur|Human Body is the coexistance of Self and Body|
 |Peer Internship|Seniors|College Website Details|
 
-July 19,2024, The eight day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. We studied about the topic _**Human Beings as thr coexistance of the Self and Body**_. Which cannot be seen but can feel is known as self and which can be seen and can be touched and feel is called body. Mam explained the requirements of self and body . Second topic was _**Understanding Human Beings with Family**_. Relationship with oneself and another self is definite. It can be recognised or not recognised. Second Lecture was of _**Peer Internship**_ conducted by Seniors. They told us _**How to use College Website?**_ and some basics things regarding college such as _**How to calculate S.G.P.A?**_
+July 19,2024, The eight day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. We studied about the topic _**Human Beings as thr coexistance of the Self and Body**_. Which cannot be seen but can feel is known as self and which can be seen and can be touched and feel is called body. Mam explained the requirements of self and body . Second topic was _**Understanding Human Beings with Family**_. Relationship with oneself and another self is definite. It can be recognised or not recognised. Second Lecture was of _**Peer Internship**_ conducted by Seniors. They told us _**How to use College Website?**_ and some basics things regarding college such as _**How to calculate S.G.P.A?**_ and many more informative things. It was an informative class.
 
