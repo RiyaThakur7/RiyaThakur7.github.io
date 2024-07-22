@@ -30,7 +30,7 @@ It was an honour to listen to these great personalities. The whole Induction Pro
 
 > New Day New Start
 
-|Lectures|Taken By|Topic|
+|Lectures|Conducted By|Topic|
 | :------| :------| :---|
 |Mathematics|Mr. Sanchit Mehra|Derivatives|
 |Peer Internship|Seniors|Excel, AI and Machine Learning|
@@ -41,16 +41,18 @@ Second lecture was **Peer Internship**. It was conducted by our seniors. Firstly
 
 ## Day 3
 
-Lectures Taken By Topic
-
-
+|Lectures|Conducted By|Topic|
+| :------| :----------| :---|
+|Auditorium Session|Dr. Amit Kamra|Digital Marketing Club|
+|Auditorium Session|Dr. S.B. Singh|Goals|
+|Auditorium Session|Dr. Pushpinder Singh|Youth|
 
  
-July 12, 2024, The Third day of Induction Program. It was conducted in Auditorium. First lecture was conducted by _**Dr. Amit Kamra**_. Sir is also the incharge of Social Media Club. Sir told us about that social media not only can be used for fun but also can be used to enhance the employability. Sir told us that _**How we can enhance our career through Social Media?**_. Sir introduced us to the college's social media pages. Sir told us that everything have its pros and cons. Social Media also have its pros and cons but we should focus on its pros and can enhance our skills suxh as editing etc. The lecture was wonderful and interesting.
+July 12, 2024, The Third day of Induction Program. It was conducted in Auditorium. First lecture was conducted by _**Dr. Amit Kamra**_. Sir is also the incharge of Digital Marketing Club. Sir told us about that social media not only can be used for fun but also can be used to enhance the employability. Sir told us that _**How we can enhance our career through Social Media?**_. Sir introduced us to the college's social media pages. Sir told us that everything have its pros and cons. Social Media also have its pros and cons but we should focus on its pros and can enhance our skills suxh as editing etc. The lecture was wonderful and interesting.
 
 Second Lecture was conducted by _**Dr. S.B. Singh**_. Sir told us to write our goals, our strong points, our weak points , Where do we see ourself in future? and many more. Sir inspired us and motivated us to dream about goals and woth hardwork we can achieve it.
 
-Third lecture was conducted by _**Dr. Pushpinder Singh**_.
+Third lecture was conducted by _**Dr. Pushpinder Singh**_. Sir shared some views on the topic _**Youth**_. _**On whose shoulders lie the hope and the responsibility of establishing Truth, Justice and ever-lasting Peace in the world**_. Sir shared _**Educare Process**_. Sir gave us some basic ideas with the help of stories. Sir told us How the college life would be?. Sir told us to set **SMART Goals**. ""' stands for Specific, "M" stands for Measurable, "A" stands for Achievable. It was a wonderful session. We got to many new things.
 
 
 ## Day 4
@@ -75,12 +77,20 @@ Second Lecture was conducted by _**Mr. Sanchit Mehra**_. Sir revised the topic o
 |UHV|Prof.Jasmine Kaur|Universal Human Values|
 |Mathematics|Mr. Sanchit Mehra| Integrals|
 
-July 16, 2024. The fifth day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. Mam teached us the _**Universal Human Values**_. Mam explained the topic _**Value Education**_. Value Education means What is valuable for you? if it is valuable for you,it makes us happy or not. Value Education and Skill Education go hand in hand. 
+July 16, 2024, The fifth day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. Mam teached us the _**Universal Human Values**_. Mam explained the topic _**Value Education**_. Value Education means What is valuable for you? if it is valuable for you,it makes us happy or not. Value Education and Skill Education go hand in hand. 
 Second Lecture was conducted by _**Mr. Sanchi Mehra**_. Sir continued the topic of _**Integration**_. We solved many questions and practiced it very well.
 
 ## Day 6
 
-July 17, 2024. The sixth day of Induction Program. 
+|Lecture|Conducted By|Topic|
+| :-----| :----------| :---|
+|Auditorium Session|Mr. Jaswinder Singh (Incharge- IAPT)|Basic Principle of Science
+|Auditorium Session|NCC Team|NCC|
+|Auditorium Session|Er. Jasvir Singh Grewal (Coordinator of NSS)|NSS|
+|Auditorium Session|Librarian|Central Library|
+|Auditorium Session|Er. Lakhveer Singh (Coordinator-CML)|CML|
+
+July 17, 2024, The sixth day of Induction Program. 
 
 
 ## Day 7
@@ -88,15 +98,19 @@ July 17, 2024. The sixth day of Induction Program.
 |Lecture|Conducted by|Topics|
 | : ----| :----------| :----|
 |Auditorium Session|Pf. Harpal Singh Pannu|
-|Auditorium Session|Dr. H.S. Rai| Examinations|
+|Auditorium Session|Dr. H.S. Rai|Examinations|
 |Department Visit/Mentor Visit|-|-|
 
-July 18, 2024. The seventh day of Induction Program. 
+July 18, 2024, The seventh day of Induction Program. First Lecture was conducted by _**Prof. Harpal Singh Pannu**_. Sir shared some stories of his childhood , some stories of _**Guru Nanak Dev Ji**_. It was a wonderful session. Second Lecture was conducted by _**Dr. H.S. Rai**_. Sir shared a poll regarding _**What is the first word that comes to our mind about "Examination"?**_. For me the word is Stress. Second Poll was regarding suggestions for examination. Sir told us **How examination is taken under college?**. Sir shared some websites with us such as **Github**, **Duck Duck Go**, **Free CAD**, **Libre DWG**, **Open Street Map**.
+
+Third thing was _**Department Visit**_. We visted our department labs such as Computational Lab, Communication and ENGG. Lab, EDA Lab, Micro Wave Engg. Lab, Project Lab etc. They showed us the working modal of Robotic Arm and How the arm work? The project was awesome. 
 
 ## Day 8
 
 |Lecture|Conducted by|Topic|
 | :-----| :----------| :---|
-|UHV|Prof. Jasmine Kaur| Human Body is the coexistence of Self and Body|
-|
+|UHV|Prof. Jasmine Kaur|Human Body is the coexistance of Self and Body|
+|Peer Internship|Seniors|College Website Details|
+
+July 19,2024, The eight day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. We studied about the topic _**Human Beings as thr coexistance of the Self and Body**_. Which cannot be seen but can feel is known as self and which can be seen and can be touched and feel is called body. Mam explained the requirements of self and body . Second topic was _**Understanding Human Beings with Family**_. Relationship with oneself and another self is definite. It can be recognised or not recognised. Second Lecture was of _**Peer Internship**_ conducted by Seniors. They told us _**How to use College Website?**_ and some basics things regarding college such as _**How to calculate S.G.P.A?**_
 
