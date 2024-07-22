@@ -97,7 +97,7 @@ July 17, 2024, The sixth day of Induction Program.
 
 |Lecture|Conducted By|Topic|
 | : ----| :----------| :---|
-|Auditorium Session|Pf. Harpal Singh Pannu|
+|Auditorium Session|Pf. Harpal Singh Pannu|-|
 |Auditorium Session|Dr. H.S. Rai|Examinations|
 |Department Visit,Mentor Visit|-|-|
 
