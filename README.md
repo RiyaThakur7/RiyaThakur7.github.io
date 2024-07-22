@@ -73,7 +73,7 @@ Second Lecture was conducted by _**Mr. Sanchit Mehra**_. Sir revised the topic o
 ## Day 5
 
 |Lecture|Conducted By|Topic|
-|:------|:-----------| :----|
+|:------|:-----------| :---|
 |UHV|Prof.Jasmine Kaur|Universal Human Values|
 |Mathematics|Mr. Sanchit Mehra| Integrals|
 
@@ -84,7 +84,7 @@ Second Lecture was conducted by _**Mr. Sanchi Mehra**_. Sir continued the topic 
 
 |Lecture|Conducted By|Topic|
 | :-----| :----------| :---|
-|Auditorium Session|Mr. Jaswinder Singh (Incharge- IAPT)|Basic Principle of Science
+|Auditorium Session|Mr. Jaswinder Singh (Incharge- IAPT)|Basic Principle of Science|
 |Auditorium Session|NCC Team|NCC|
 |Auditorium Session|Er. Jasvir Singh Grewal (Coordinator of NSS)|NSS|
 |Auditorium Session|Librarian|Central Library|
