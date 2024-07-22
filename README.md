@@ -99,7 +99,7 @@ July 17, 2024, The sixth day of Induction Program.
 | : ----| :----------| :---|
 |Auditorium Session|Pf. Harpal Singh Pannu|
 |Auditorium Session|Dr. H.S. Rai|Examinations|
-|Department Visit/Mentor Visit|-|-|
+|Department Visit,Mentor Visit|-|-|
 
 July 18, 2024, The seventh day of Induction Program. First Lecture was conducted by _**Prof. Harpal Singh Pannu**_. Sir shared some stories of his childhood , some stories of _**Guru Nanak Dev Ji**_. It was a wonderful session. Second Lecture was conducted by _**Dr. H.S. Rai**_. Sir shared a poll regarding _**What is the first word that comes to our mind about "Examination"?**_. For me the word is Stress. Second Poll was regarding suggestions for examination. Sir told us **How examination is taken under college?**. Sir shared some websites with us such as **Github**, **Duck Duck Go**, **Free CAD**, **Libre DWG**, **Open Street Map**.
 
