@@ -129,3 +129,6 @@ Third thing was _**Department Visit**_. We visted our department labs such as Co
 
 July 19,2024, The eight day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. We studied about the topic _**Human Beings as thr coexistance of the Self and Body**_. Which cannot be seen but can feel is known as self and which can be seen and can be touched and feel is called body. Mam explained the requirements of self and body . Second topic was _**Understanding Human Beings with Family**_. Relationship with oneself and another self is definite. It can be recognised or not recognised. Second Lecture was of _**Peer Internship**_ conducted by Seniors. They told us _**How to use College Website?**_ and some basics things regarding college such as _**How to calculate S.G.P.A?**_ and many more informative things. It was an informative class.
 
+
+>GOT A SEAT IN IT
+
