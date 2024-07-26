@@ -147,7 +147,7 @@ July 23,2024, The tenth day of Induction Programme. First lecture was conducted 
 | :-----| :----------| :----|
 |Auditorium Session|Mr. Gauravdeep Singh|New approach towards Life|
 |Auditorium Session|Er. Lakhveer Singh|CML|
-|Auditorium Session|
+|Auditorium Session|Seniors|Causmic Club|
 
 July 24,2024, The eleventh day of Induction Programme. First Lecture was conducted by the _**Mr. Gauravdeep Singh**_.Mr. Gauravdeep Singh is the head of the Initiators of Change (IOC) organization. Throughout his life, he has received numerous awards. Sir also told us about his experiences. Sir also motivated us. Sir told us to know about yourself. **Find your Qualities**, **God always do best**. Sir told us to love yourself as it will make us grow, we will come to know about us more which will help us to know **What we can do in our life?** It was an indeed motivational speech.  Second Lecture was conducted by _**Er. Lakhveer Singh**_, coordinator of CML. The college has a multi faceted learning center (CML) which aims  at promoting thr holistic development of students. Sir also shared the information regarding NPTEL (SWAYAM). It was a quite informative class.  Third Lecture was conducted by _**Seniors**_. They told us about the **Causmic Club** that Why should be join the Causmic Club? Joining Causmic Club can build our confidence and many more.
 
