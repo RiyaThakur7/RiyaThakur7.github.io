@@ -58,7 +58,7 @@ Second lecture was **Peer Internship**. It was conducted by our seniors. Firstly
 |Auditorium Session|Dr. Pushpinder Singh|Youth|
 
  
-July 12, 2024, The Third day of Induction Program. It was conducted in Auditorium. First lecture was conducted by _**Dr. Amit Kamra**_. Sir is also the incharge of Digital Marketing Club. Sir told us about that social media not only can be used for fun but also can be used to enhance the employability. Sir told us that _**How we can enhance our career through Social Media?**_. Sir introduced us to the college's social media pages. Sir told us that everything have its pros and cons. Social Media also have its pros and cons but we should focus on its pros and can enhance our skills suxh as editing etc. The lecture was wonderful and interesting.
+July 12, 2024, The Third day of Induction Program. It was conducted in Auditorium. First lecture was conducted by _**Dr. Amit Kamra**_. Sir is also the incharge of _**Digital Marketing Club**_. Sir told us about that social media not only can be used for fun but also can be used to enhance the employability. Sir told us that _**How we can enhance our career through Social Media?**_. Sir introduced us to the college's social media pages. Sir told us that everything have its pros and cons. Social Media also have its pros and cons but we should focus on its pros and can enhance our skills suxh as editing etc. The lecture was wonderful and interesting.
 
 Second Lecture was conducted by _**Dr. S.B. Singh**_. Sir told us to write our goals, our strong points, our weak points , Where do we see ourself in future? and many more. Sir inspired us and motivated us to dream about goals and woth hardwork we can achieve it.
 
@@ -86,7 +86,7 @@ Second Lecture was conducted by _**Mr. Sanchit Mehra**_. Sir revised the topic o
 |UHV|Prof.Jasmine Kaur|Universal Human Values|
 |Mathematics|Mr. Sanchit Mehra| Integrals|
 
-July 16, 2024, The fifth day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. Mam teached us the _**Universal Human Values**_. Mam explained the topic _**Value Education**_. Value Education means What is valuable for you? if it is valuable for you,it makes us happy or not. Value Education and Skill Education go hand in hand. 
+July 16, 2024, The fifth day of Induction Programme. First lecture was conducted by _**Prof. Jasmine Kaur**_. Mam teached us the _**Universal Human Values**_. Mam explained the topic _**Value Education**_. Value Education means What is valuable for you? if it is valuable for you,it makes us happy or not. Value Education and Skill Education go hand in hand. 
 Second Lecture was conducted by _**Mr. Sanchi Mehra**_. Sir continued the topic of _**Integration**_. We solved many questions and practiced it very well.
 ***
 ## Day 6
@@ -99,7 +99,7 @@ Second Lecture was conducted by _**Mr. Sanchi Mehra**_. Sir continued the topic 
 |Auditorium Session|Librarian|Central Library|
 |Auditorium Session|Er. Lakhveer Singh|CML|
 
-July 17, 2024, The sixth day of Induction Program. First session was conducted by _**Mr. Jaswinder Singh**_, Incharge of IAPT. Sir told us that everywhere is science. That science should be understanded with meaning. If we understand the science, it will become easy for us to learn. We will able to understand the concept easily and wil not ever forget it. Sir showed many experiments such as rubbing the ballon on the hand, dipping glass in the bowl filled with water etc. It was a very interactive class. I learned many new things.       
+July 17, 2024, The sixth day of Induction Programme. First session was conducted by _**Mr. Jaswinder Singh**_, Incharge of IAPT. Sir told us that everywhere is science. That science should be understanded with meaning. If we understand the science, it will become easy for us to learn. We will able to understand the concept easily and wil not ever forget it. Sir showed many experiments such as rubbing the ballon on the hand, dipping glass in the bowl filled with water etc. It was a very interactive class. I learned many new things.       
 Second Lecture was conducetd by _**NCC Team**_. NCC Team shared the role of NCC and what does NCC have. NCC also have an Air Wing now.  
 Third Lecture was conducted by _**Er. Jasvir Singh**_, the coordinator of NSS. The college has self supporting NSS units all engaged in Blood donation, tree plantation and Drug de- addiction campaigns etc.    
 Fourth Lecture was of _**Library**_. They told us How to apply for library card and what facilities library have.  
@@ -115,7 +115,7 @@ Fifth Lecture was conducted by _**Er. Lakhveer Singh**_, coordinator of CML. The
 |Auditorium Session|Dr. H.S. Rai|Examinations|
 |Department Visit| - | - |
 
-July 18, 2024, The seventh day of Induction Program. First Lecture was conducted by _**Prof. Harpal Singh Pannu**_. Sir shared some stories of his childhood , some stories of _**Guru Nanak Dev Ji**_. It was a wonderful session. Second Lecture was conducted by _**Dr. H.S. Rai**_. Sir shared a poll regarding _**What is the first word that comes to our mind about "Examination"?**_. For me the word is Stress. Second Poll was regarding suggestions for examination. Sir told us **How examination is taken under college?**. Sir shared some websites with us such as **Github**, **Duck Duck Go**, **Free CAD**, **Libre DWG**, **Open Street Map**.
+July 18, 2024, The seventh day of Induction Programme. First Lecture was conducted by _**Prof. Harpal Singh Pannu**_. Sir shared some stories of his childhood , some stories of _**Guru Nanak Dev Ji**_. It was a wonderful session. Second Lecture was conducted by _**Dr. H.S. Rai**_. Sir shared a poll regarding _**What is the first word that comes to our mind about "Examination"?**_. For me the word is Stress. Second Poll was regarding suggestions for examination. Sir told us **How examination is taken under college?**. Sir shared some websites with us such as **Github**, **Duck Duck Go**, **Free CAD**, **Libre DWG**, **Open Street Map**.
 
 Third thing was _**Department Visit**_. We visted our department labs such as Computational Lab, Communication and ENGG. Lab, EDA Lab, Micro Wave Engg. Lab, Project Lab etc. They showed us the working modal of Robotic Arm and How the arm work? The project was awesome. 
 ***
@@ -126,7 +126,7 @@ Third thing was _**Department Visit**_. We visted our department labs such as Co
 |UHV|Prof. Jasmine Kaur|Human Body is the coexistance of Self and Body|
 |Peer Internship|Seniors|College Website Details|
 
-July 19,2024, The eight day of Induction Program. First lecture was conducted by _**Prof. Jasmine Kaur**_. We studied about the topic _**Human Beings as thr coexistance of the Self and Body**_. Which cannot be seen but can feel is known as self and which can be seen and can be touched and feel is called body. Mam explained the requirements of self and body . Second topic was _**Understanding Human Beings with Family**_. Relationship with oneself and another self is definite. It can be recognised or not recognised. Second Lecture was of _**Peer Internship**_ conducted by Seniors. They told us _**How to use College Website?**_ and some basics things regarding college such as _**How to calculate S.G.P.A?**_ and many more informative things. It was an informative class.
+July 19,2024, The eight day of Induction Programme. First lecture was conducted by _**Prof. Jasmine Kaur**_. We studied about the topic _**Human Beings as thr coexistance of the Self and Body**_. Which cannot be seen but can feel is known as self and which can be seen and can be touched and feel is called body. Mam explained the requirements of self and body . Second topic was _**Understanding Human Beings with Family**_. Relationship with oneself and another self is definite. It can be recognised or not recognised. Second Lecture was of _**Peer Internship**_ conducted by Seniors. They told us _**How to use College Website?**_ and some basics things regarding college such as _**How to calculate S.G.P.A?**_ and many more informative things. It was an informative class.
 ***
 
 # Got a Seat in IT
@@ -139,7 +139,7 @@ July 19,2024, The eight day of Induction Program. First lecture was conducted by
 |Peer Internship|Seniors|Canva|
 |Mathematics|SKG|Integration|
 
-July 23,2024, The tenth day of Induction Program. First lecture was conducted by the _**Seniors**_. They taught us the topic of **Canva**. They explained every step. We got to know _**How to make our own templates?**_ During this lecture we made our own templates, generated the QR code of college and made an advertisement. Second Lecture was conducted by _**SKG**_. Mam revised the topic of **Integration**. We solved many questions of Integration.
+July 23,2024, The tenth day of Induction Programme. First lecture was conducted by the _**Seniors**_. They taught us the topic of **Canva**. They explained every step. We got to know _**How to make our own templates?**_ During this lecture we made our own templates, generated the QR code of college and made an advertisement. Second Lecture was conducted by _**SKG**_. Mam revised the topic of **Integration**. We solved many questions of Integration.
 ***
 ## Day 11
 
@@ -149,7 +149,8 @@ July 23,2024, The tenth day of Induction Program. First lecture was conducted by
 |Auditorium Session|Er. Lakhveer Singh|CML|
 |Auditorium Session|
 
-July 24,2024, The eleventh day of Induction Programme. First Lecture was conducted by the _**Mr. Gauravdeep Singh**_.Mr. Gauravdeep Singh is the head of the Initiators of Change (IOC) organization. Throughout his life, he has received numerous awards. Sir also told us about his experiences. Sir also motivated us. Sir told us to know about yourself. **Find your Qualities**, **God always do best**. Sir told us to love yourself as it will make us grow, we will come to know about us more which will help us to know **What we can do in our life?** It was an indeed motivational speech.  Second Lecture was conducted by _**Er. Lakhveer Singh**_, coordinator of CML. The college has a multi faceted learning center (CML) which aims  at promoting thr holistic development of students. Sir also shared the information regarding NPTEL (SWAYAM). It was a quite informative class.  Third Lecture was conducted by
+July 24,2024, The eleventh day of Induction Programme. First Lecture was conducted by the _**Mr. Gauravdeep Singh**_.Mr. Gauravdeep Singh is the head of the Initiators of Change (IOC) organization. Throughout his life, he has received numerous awards. Sir also told us about his experiences. Sir also motivated us. Sir told us to know about yourself. **Find your Qualities**, **God always do best**. Sir told us to love yourself as it will make us grow, we will come to know about us more which will help us to know **What we can do in our life?** It was an indeed motivational speech.  Second Lecture was conducted by _**Er. Lakhveer Singh**_, coordinator of CML. The college has a multi faceted learning center (CML) which aims  at promoting thr holistic development of students. Sir also shared the information regarding NPTEL (SWAYAM). It was a quite informative class.  Third Lecture was conducted by _**Seniors**_. They told us about the **Causmic Club** that Why should be join the Causmic Club? Joining Causmic Club can build our confidence and many more.
+
 ***
 ## Day 12
 
@@ -160,7 +161,7 @@ July 24,2024, The eleventh day of Induction Programme. First Lecture was conduct
 |Mathematics Test| - | - |
 
 July 25, 2024, The twelveth day of Induction Programme. First Lecture was conducted by _**SKG**_. Mam revised the topic of Integration. Second Lecture was conducted by _**SS**_. Sir revised the topic of _**Diffrentitation**_. Maths test was conducted later on.
-
+***
 ## Day 13
 > The last day of Induction Programme. It was a quite a nice experience. Learned many new things.
 
@@ -169,7 +170,9 @@ July 25, 2024, The twelveth day of Induction Programme. First Lecture was conduc
 |Auditorium Session|Dr.Kawalpreet K Bhatt|Meditation|
 |Auditorium Valedictory| - | - |
 
-July 26, 2024, The thirteenth day of Induction Programme. First Lecture was conducted by Dr.Kawalpreet K Bhatt 
+July 26, 2024, The thirteenth day of Induction Programme. First Lecture was conducted by Dr.Kawalpreet K Bhatt. She is the Meditation Counseller and Homopathic Practitioner. Mam explained about the topic **Meditation**. We did the meditation for 15 mins. Secondly, we enjoyed all the performances of singing and dancing. Everyone didi a great job.
+***
+
 
 
 
