@@ -29,7 +29,9 @@ It was an honour to listen to these great personalities. The whole Induction Pro
 
 ## EXCEL Certificate
 
+![certificate excel](https://github.com/user-attachments/assets/1da9af2c-2de9-4bf9-af43-b1b105a44bd3)
 
+This is the certificate for the Excel course by **Great Learning**
 
 
 
@@ -97,11 +99,11 @@ Second Lecture was conducted by _**Mr. Sanchi Mehra**_. Sir continued the topic 
 |Auditorium Session|Librarian|Central Library|
 |Auditorium Session|Er. Lakhveer Singh|CML|
 
-July 17, 2024, The sixth day of Induction Program. First session was conducted by _**Mr. Jaswinder Singh**_, Incharge of IAPT. Sir told us that everywhere is science. That science should be understanded with meaning. If we understand the science, it will become easy for us to learn. We will able to understand the concept easily and wil not ever forget it. Sir showed many experiments such as rubbing the ballon on the hand, dipping glass in the bowl filled with water etc. It was a very interactive class. I learned many new things.     
-Second Lecture was conducetd by _**NCC Team**_. NCC Team shared the role of NCC and what does NCC have. NCC also have an Air Wing now.
-Third Lecture was conducted by _**Er. Jasvir Singh**_, the coordinator of NSS. The college has self supporting NSS units all engaged in Blood donation, tree plantation and Drug de- addiction campaigns etc.  
-Fourth Lecture was of _**Library**_. They told us How to apply for library card and what facilities library have.
-Fifth Lecture was conducted by _**Er. Lakhveer Singh**_, coordinator of CML. The college has a multi faceted learning center (CML) which aims  at promoting thr holistic development of students. Sir also shared the information regarding NPTEL (SWAYAM). It was a quite informative class.
+July 17, 2024, The sixth day of Induction Program. First session was conducted by _**Mr. Jaswinder Singh**_, Incharge of IAPT. Sir told us that everywhere is science. That science should be understanded with meaning. If we understand the science, it will become easy for us to learn. We will able to understand the concept easily and wil not ever forget it. Sir showed many experiments such as rubbing the ballon on the hand, dipping glass in the bowl filled with water etc. It was a very interactive class. I learned many new things.       
+Second Lecture was conducetd by _**NCC Team**_. NCC Team shared the role of NCC and what does NCC have. NCC also have an Air Wing now.  
+Third Lecture was conducted by _**Er. Jasvir Singh**_, the coordinator of NSS. The college has self supporting NSS units all engaged in Blood donation, tree plantation and Drug de- addiction campaigns etc.    
+Fourth Lecture was of _**Library**_. They told us How to apply for library card and what facilities library have.  
+Fifth Lecture was conducted by _**Er. Lakhveer Singh**_, coordinator of CML. The college has a multi faceted learning center (CML) which aims  at promoting thr holistic development of students. Sir also shared the information regarding NPTEL (SWAYAM). It was a quite informative class.  
 ***
 
 
