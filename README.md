@@ -29,8 +29,6 @@ It was an honour to listen to these great personalities. The whole Induction Pro
 
 ## EXCEL Certificate
 
-[Riya Thakur (1).pdf](https://github.com/user-attachments/files/16337503/Riya.Thakur.1.pdf)
-
 
 
 
