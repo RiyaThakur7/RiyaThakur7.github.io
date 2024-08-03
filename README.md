@@ -6,10 +6,12 @@
 >It might be a bittersweet path but the fruit will taste sweet.
 
 ## Myself
- Hi everyone! let me introduce myself. I am Riya Thakur currently pursuing B.Tech in Electronics and Communications at **Guru Nanak Dev Engineering College, Ludhiana**. I completed my 10th and 12th grades at **Spring Dale Public School, Ludhiana** achieving 84.4% and 80.8%. We have come to a new phase of our life where our new journey begings, everyone is  finding their own path and working hard for their goals. Let's just all work hard hoping to see our future self as an successful person.  
+ Hi everyone! let me introduce myself. I am Riya Thakur currently pursuing B.Tech in Electronics and Communications at **Guru Nanak Dev Engineering College, Ludhiana**. I completed my 10th and 12th grades at **Spring Dale Public School, Ludhiana** achieving 84.4% and 80.8%. We have come to a new phase of our life where our new journey begings, everyone is  finding their own path and working hard for their goals. Let's just all work hard hoping to see our future self as an successful person. 
+ 
 ***
 ## Why I choosed B.Tech?
 I choose B.Tech because I was always interested in 'How things work?'. I developed my interest more in 8th grade when my computer teacher taught us HTML. It was something new that developed my interest. B.Tech emphasize innovation and creativity, encouraging students to develop new technologies. It also have many career options.
+
 ***
 ## Hobbies
 1. Drawing 
@@ -18,6 +20,7 @@ I choose B.Tech because I was always interested in 'How things work?'. I develop
 3. Travelling
    
 Everyone likes to learn new skills. Even I also wanted to learn . I was interested in knowing how things work, how coding is done and many more. This lead to my dream of becoming an engineer.
+
 ***
 ## Report Of Induction Programme
 
@@ -48,6 +51,7 @@ This is the certificate for the Excel course by **Great Learning**
 July 11, 2024, The second day of Induction Program. There were 2 lectures for _Electronics and Communications Students_. First Lecture was **Mathematics** and was conducted by  **Mr.Sanchit Mehra** . Sir revised the topic of _**Derivatives**_. He explained the topic very well and we solved many questions. It was a very interactive class.
 
 Second lecture was **Peer Internship**. It was conducted by our seniors. Firstly, They taught us _**How to use Excel?**_. They explained it very well. Second topic was _**Artificial Intelligence and Machine Learning**_. They explained us _**What is AI?**_. They told us about **Chat Gpt**. There are many AI softwares such as Chat Gpt, Gemini, Meta etc. We got to know about _**Machine Learning**_. Machine Learning is a subset of Artificial Intelligence that automatically enables a machine or system to learn and improve from experience. That was a wonderful class. We got so much information about AI and Machine Learning.
+
 ***
 ## Day 3
 
@@ -63,11 +67,12 @@ July 12, 2024, The Third day of Induction Program. It was conducted in Auditoriu
 Second Lecture was conducted by _**Dr. S.B. Singh**_. Sir told us to write our goals, our strong points, our weak points , Where do we see ourself in future? and many more. Sir inspired us and motivated us to dream about goals and woth hardwork we can achieve it.
 
 Third lecture was conducted by _**Dr. Pushpinder Singh**_. Sir shared some views on the topic _**Youth**_. _**On whose shoulders lie the hope and the responsibility of establishing Truth, Justice and ever-lasting Peace in the world**_. Sir shared _**Educare Process**_. Sir gave us some basic ideas with the help of stories. Sir told us How the college life would be?. Sir told us to set **SMART Goals**. ""' stands for Specific, "M" stands for Measurable, "A" stands for Achievable. It was a wonderful session. We got to many new things.
+
 ***
 
 ## Day 4
 |Lecture|Conducted By|Topic|
-| :-----| :----------| :---|
+|-------|------------|-----|
 |Peer Internship|Seniors|Canva|
 |Mathematics|Mr. Sanchit Mehra| Integrals|
 
