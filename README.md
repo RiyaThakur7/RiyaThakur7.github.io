@@ -9,7 +9,7 @@
  Hi everyone! let me introduce myself. I am Riya Thakur currently pursuing B.Tech in Electronics and Communications at **Guru Nanak Dev Engineering College, Ludhiana**. I completed my 10th and 12th grades at **Spring Dale Public School, Ludhiana** achieving 84.4% and 80.8%. We have come to a new phase of our life where our new journey begings, everyone is  finding their own path and working hard for their goals. Let's just all work hard hoping to see our future self as an successful person.  
 ***
 ## Why I choosed B.Tech?
-I choosed B.Tech because I was always interested in 'How things work?'. I developed my interest more in 8th grade when my computer teacher taught us HTML. It was something new that developed my interest. B.Tech emphasize innovation and creativity, encouraging students to develop new technologies. It also have many career options.
+I choose B.Tech because I was always interested in 'How things work?'. I developed my interest more in 8th grade when my computer teacher taught us HTML. It was something new that developed my interest. B.Tech emphasize innovation and creativity, encouraging students to develop new technologies. It also have many career options.
 ***
 ## Hobbies
 1. Drawing 
