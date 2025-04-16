@@ -190,7 +190,7 @@ July 25, 2024, The twelveth day of Induction Programme. First Lecture was conduc
 |Auditorium Session|Dr.Kawalpreet K Bhatt|Meditation|
 |Auditorium Valedictory| - | - |
 
-July 26, 2024, The thirteenth day of Induction Programme. First Lecture was conducted by Dr.Kawalpreet K Bhatt. She is the Meditation Counseller and Homopathic Practitioner. Mam explained about the topic **Meditation**. We did the meditation for 15 mins. Secondly, we enjoyed all the performances of singing and dancing. Everyone didi a great job.
+July 26, 2024, The thirteenth day of Induction Programme. First Lecture was conducted by Dr.Kawalpreet K Bhatt. She is the Meditation Counseller and Homopathic Practitioner. Mam explained about the topic **Meditation**. We did the meditation for 15 mins. Secondly, we enjoyed all the performances of singing and dancing. Everyone did a great job.
 
 ***
 
